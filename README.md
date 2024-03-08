@@ -1,2 +1,3 @@
 # 444
-![hollow](https://github.com/RishiGoyal02/444/assets/112836292/f22f02bb-f729-4d87-b6a8-beda27760fc1)
+
+![bear](https://github.com/RishiGoyal02/444/assets/112836292/c35791c2-ff85-47e9-8e12-70b3a25262af)
